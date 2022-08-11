@@ -7,3 +7,4 @@ Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Rifat Sulthon, [LinkedIn]
+* ABCDEFGHIJ, [LinkedIn]
